@@ -9,4 +9,4 @@
 
 📚 &nbsp;&nbsp; I like reading [books](https://www.goodreads.com/user/show/135778549-slimane-akali),
 
-✍️ &nbsp;&nbsp; Sometimes, I write [articles](https://www.slimane.io/).
+✍️ &nbsp;&nbsp; Sometimes, I write [articles](https://www.slimane.io/articles).
