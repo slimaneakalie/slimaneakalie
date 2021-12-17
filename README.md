@@ -5,7 +5,7 @@
 
 🎥  &nbsp;&nbsp; I make [videos](https://www.youtube.com/channel/UCAKherxCCvXWHyGaeQKy-Jw),
 
-🎙️ &nbsp;&nbsp; I host [a podcast](https://www.slimane.io/podcast),
+🎙️ &nbsp;&nbsp; I host [Kass Atay Podcast](https://www.slimane.io/podcast),
 
 📚 &nbsp;&nbsp; I like reading [books](https://www.goodreads.com/user/show/135778549-slimane-akali),
 
