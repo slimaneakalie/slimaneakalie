@@ -1,10 +1,12 @@
 ### Hi there this is Slimane 👋
 
 
-💻  &nbsp;&nbsp; My professional [github account](https://github.com/slimaneaklia).
+💻  &nbsp;&nbsp; I build [software](https://www.linkedin.com/in/slimaneakalie),
 
-🌐  &nbsp;&nbsp; My [website](https://www.slimane.io/)
+🎥  &nbsp;&nbsp; I make [videos](https://www.youtube.com/channel/UCAKherxCCvXWHyGaeQKy-Jw),
 
-🎥  &nbsp;&nbsp; My Youtube [channel](https://www.youtube.com/channel/UCAKherxCCvXWHyGaeQKy-Jw)
+🎙️ &nbsp;&nbsp; I host [a podcast](https://www.slimane.io/podcast),
 
-⚡ &nbsp;&nbsp; Fun fact: I like books and finance
+📚 &nbsp;&nbsp; I like reading [books](https://www.goodreads.com/user/show/135778549-slimane-akali),
+
+✍️ &nbsp;&nbsp; Sometimes, I write [articles](https://www.slimane.io/).
