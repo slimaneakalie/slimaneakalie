@@ -1,4 +1,4 @@
-### Hi there this is Slimane 👋
+### Hi there, this is Slimane 👋
 
 
 💻  &nbsp;&nbsp; I build [software](https://www.linkedin.com/in/slimaneakalie),
